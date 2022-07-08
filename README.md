@@ -1,0 +1,5 @@
+- 👋 fala fiote,eu sou @Wellerson5090
+- 👀 estou interessado em criar meus proprios jogos
+- 🌱 estou aprendendo a programar 
+- 📫 como não me achar wellerson.teixeira@escola.pr.gov.br
+- amo café
